@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @willprice16
+- 👀 I’m interested in changing careers to become a Data Analyst/Scientist
+- 🌱 I’m currently learning Python, just completed the ITS Python Programming accreditation!
+- 📫 Reach me on here or with my email william.price16@gmail.com or my LinkedIn page www.linkedin.com/in/william-price-a030839b
